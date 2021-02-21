@@ -1,0 +1,1 @@
+"71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net","71999926079@s.whatsapp.net",
